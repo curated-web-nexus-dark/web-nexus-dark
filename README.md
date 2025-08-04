@@ -46,3 +46,5 @@ As always, exercise extreme caution when participating in darknet markets and en
 ---
 **Disclaimer**: This article is for educational and informational purposes only. Accessing or engaging in activity on darknet marketplaces may be illegal in your jurisdiction.
 ```
+
+Update:  04 August 2025
